@@ -1,4 +1,4 @@
 recipes
 =======
 
-Recipes
+Recipes are code.  They should be on github.
