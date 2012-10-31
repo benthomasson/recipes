@@ -4,4 +4,4 @@ Biscuit recipe #4:
 enough buttermilk about 3/4 cup  
 1/4 tsp baking soda  
 475 degree oven 12 minutes  
-Makes 4 giant biscuits.  
+Makes 7 biscuits and one frankenbiscuit.  
