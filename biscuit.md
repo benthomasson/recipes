@@ -1,4 +1,4 @@
-Biscuit recipe #3:  
+Biscuit recipe #4:  
 10 oz Southern Biscuit SR flour  
 1/3 cup LARD!  
 enough buttermilk about 3/4 cup  
